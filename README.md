@@ -1,2 +1,2 @@
 # Certificates
-My course and  competition certificates
+My course and  competition and certificates
